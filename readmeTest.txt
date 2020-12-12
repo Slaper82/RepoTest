@@ -1,1 +1,0 @@
-Jakis tekst do testów
